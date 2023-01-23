@@ -10,3 +10,5 @@ Dark nahh ✰✰
 ####### body body body yadadada 
 
 cryyyyyy rip scientist 
+
+I'm a marketer scientist elizabeth holmes mf 
