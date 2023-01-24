@@ -9,3 +9,5 @@ Dark nahh ✰✰
 ###### body body body yadadada 
 # update ... will i ever code again 
 # stay consistent 
+# hope i never run out of work 
+# natural work ✰✰ 
