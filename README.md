@@ -1,10 +1,5 @@
 # darknahh
 Dark nahh ✰✰ 
 # wow is that an easter egg xx ✰✰ ✟ ✰✰ ✟ ✰✰ ✟ xx
-# This is all it takes to code 
-## body body body yadadada 
-### body body body yadadada 
-#### body body body yadadada 
-##### body body body yadadada 
-###### body body body yadadada 
-# bad schedule
+# ✰✰ ✟ ✰✰ ✟ 
+# Hope I can learn to code better so I can contribute/help in an open source project or create my own project that is helpful in some way or another... 
