@@ -8,3 +8,10 @@ Dark nahh ✰✰
 ### all i learned from researching is force fields 
 ### how to make force fields 
 # i think i lost my mind in the art 
+### This is robo I can only thing of things 
+### black and white 
+### binary 
+#### 1s and 0s 
+### can someone write the code to life 
+#### thank you 
+## arigato 
